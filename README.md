@@ -41,7 +41,7 @@
 
 ### 📫 **Connect With Me**  
 - **LinkedIn**: [linkedin.com/in/bakryabdalsalam](https://www.linkedin.com/in/bakryabdalsalam)  
-- **Email**: bakryabdalsalam@example.com  
+- **Email**: bakryabdalsalam6@gmail.com  
 
 ---
 
